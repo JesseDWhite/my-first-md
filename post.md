@@ -5,3 +5,5 @@ This blog is here to detail parts of my life that I wish to share.
 * Try to go back to sleep and fail completely.
 * Continue to stare at the wall until the sun comes up.
 * Quickly put on my human suit before the wife notices. _she doesn't supect a thing_.
+* All is normal...
+## [Follow me for more great tips and tricks!] (https://twitter.com/alienufovideos?lang=en)
